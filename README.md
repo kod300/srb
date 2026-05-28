@@ -1,4 +1,4 @@
-## ClimaHub.ge
+## ventservice.ge
 
 продается доменное имя
 domain name for sale
