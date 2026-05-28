@@ -1,4 +1,4 @@
-## ventservice.ge
+## https://ventservice.ge/
 
 продается доменное имя
 domain name for sale
