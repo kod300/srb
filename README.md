@@ -1,8 +1,4 @@
-## https://ventservice.ge/
 
-продается доменное имя
-domain name for sale
-+380984843126
 <!--
 **kod300/kod300** is a ✨ _special_ ✨ repository because its `README.md` (this file) profile.
 
